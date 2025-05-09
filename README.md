@@ -1,5 +1,5 @@
-# Hi there👋
-I'm @APIsraa 🙋‍♀️
+# Hi there, I'm @APIsraa
+
 
 ## About me 👩‍💻
 
